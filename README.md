@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KeWids
-- 👀 I’m interested in big data 
+- 👀 I’m interested in big data and starting a career in data analytics
 - 🌱 I’m currently learning the latest project management techniques and tip on how to survive in this fast paced market!
 - 💞️ I’m looking to collaborate on projects that are related to digital marketing, health infomatics, and insurance
 - 📫 How to reach me by email keturahwilkerson95@gmail.com or linkedin.com/in/keturah-wilkerson
